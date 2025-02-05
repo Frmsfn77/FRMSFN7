@@ -1,4 +1,6 @@
 # FRMSFN7
+هايلكس ٢٠١٦-٢٠٢٤ https://www.dropbox.com/scl/fi/9ep1pmc7oicqhy1sdqgb3/Hilux_2016_KHwylD.zip?rlkey=l3bpwtkhjtg7vl4sdf1blgdqt&st=rq7kj7e2&dl=1
+
 ربع خويلد
 ‏https://www.dropbox.com/scl/fi/pccick6y5899ibuxtrwni/Land_Cruiser_j70_2023_KHwylD.zip?rlkey=1zjn9vyesvbhzcf1j5hcxidzk&st=3nvw8421&dl=1
 
@@ -13,7 +15,7 @@
 
 كابرس جودته ممتازه جدا 
 ‏https://modsfire.com/8AP8nNCSy980caL
-هايلكس ٢٠١٦-٢٠٢٤ https://www.dropbox.com/scl/fi/9ep1pmc7oicqhy1sdqgb3/Hilux_2016_KHwylD.zip?rlkey=l3bpwtkhjtg7vl4sdf1blgdqt&st=rq7kj7e2&dl=1
+
 ربع 22
 ‏https://www.modland.net/download/315053
 كزوز
