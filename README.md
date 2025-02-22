@@ -1,4 +1,8 @@
 # FRMSFN7
+المحاكي الصيني مواتر خويلد كلها
+https://gofile.io/d/VxEESq
+
+---------
 اكورد 11
 https://www.dropbox.com/scl/fi/jozk5gaccmljirihdfkpv/kash_accord.zip?rlkey=kme0fvgyp6j0952r14llgbp3p&st=8gt8hcug&dl=1
 ددسن 2016 https://www.dropbox.com/scl/fi/a111fh7rm816re24ybe49/Ddsn_2016_KHwylD.zip?rlkey=w5hxgkte3t9razrnzlb9wdu99&st=m3fjb4za&dl=1
